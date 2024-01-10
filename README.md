@@ -1,1 +1,0 @@
-# stopaloglu.github.io
